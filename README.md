@@ -1,0 +1,2 @@
+# Dozed-Off-IOT-Based-Sleep-Inducer-for-Post-Traumatic-Stress-Panic-and-Psychiatric-Disorder
+his study investigates the phenomenon of sleep paralysis—a state in which individuals wake up in the middle of the night and are temporarily unable to move or speak. Despite being conscious, the individual is paralyzed and may experience intense fear or hallucinations. it remains an unexplored area in research.
